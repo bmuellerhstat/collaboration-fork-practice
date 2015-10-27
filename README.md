@@ -1,5 +1,5 @@
-#### 1 brianmueller was here
-#### 2 bmuellerhstat wuz here
+#### 1
+#### 2
 #### 3
 #### 4
 #### 5
